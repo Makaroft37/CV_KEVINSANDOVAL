@@ -19,7 +19,7 @@
 ## 🎓 Educación
 ### **enrique olaya Herrera** _(2021 - 2024)_
 - Tecnico en Asistencia Administrativa.
-- Bachiller:
+- Bachiller.
 
 ## 💡 Habilidades
 - **Habilidad 1**
