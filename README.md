@@ -5,7 +5,7 @@
 **Profesión:** _Analista y desarollador de sofware_
 
 ## 📞 Contacto
-- **Teléfono:** +57 123 456 7890
+- **Teléfono:** +57 316 772 5484
 - **Email:** [ekvinultra07@gmail.com](kevinultra07@gmail.com)
 - **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
 
