@@ -7,7 +7,7 @@
 ## 📞 Contacto
 - **Teléfono:** +57 316 772 5484
 - **Email:** [ekvinultra07@gmail.com](kevinultra07@gmail.com)
-- **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
+- **LinkedIn:** [linkedin.com/in/tuusuario](https://co.linkedin.com/in/makaroft-sandoval-a35362379)
 
 ## 🏢 Experiencia Laboral
 ### **SENA** _(2025 - Actualidad)_
